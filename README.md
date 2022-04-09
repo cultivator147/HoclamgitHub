@@ -1,2 +1,3 @@
 # HoclamgitHub
 To learn how to work with gitHub...such as upload a project.
+Hello I'm Trinh Minh Hieu. I'm K65. I study  Computer Science in the institute of Informations and commununcations technology at HUST. I live in Thanh Hoa,  a province in the north central region. My hobbies is listening to music. I listen to many genres of musik, such us VNese music, USUK, Korean music, Chinese music. I also love playing sports, such as badminton,basketball and table tennis. Besides that, I like playing lots of game, they're PUBG, Lien Quan Mobile and League of Legends. About my strengs, I am Loyality, Optimistic, hard-working, enthusiastic and quite sociability. However, sometimes im not very confident, easily lost interests and I'm quite  stubborn. That's all, bye!!
